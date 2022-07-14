@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **ss14.official@gmail.com**
 
-- 📄 Resume [https://drive.google.com/file/d/1S_25Us91XZYWrahrXFbB8T8Smth9Xleq/view?usp=sharing](https://drive.google.com/file/d/1S_25Us91XZYWrahrXFbB8T8Smth9Xleq/view?usp=sharing)
+- 📄 Resume [https://drive.google.com/file/d/15xZnazJ84DtPZn6JiL2c24GcqtBUuO4d/view?usp=sharing](https://drive.google.com/file/d/15xZnazJ84DtPZn6JiL2c24GcqtBUuO4d/view?usp=sharing)
 
 - ⚡ Fun fact **I love Hip-Hop music. I rap a lot too in free time.**
 
