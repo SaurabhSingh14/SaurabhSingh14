@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/SaurabhSingh14](https://github.com/SaurabhSingh14)
 
-- 📫 How to reach me **souravthechamp14@gmail.com**
+- 📫 How to reach me **ss14.official@gmail.com**
 
 - 📄 Resume [https://drive.google.com/file/d/1S_25Us91XZYWrahrXFbB8T8Smth9Xleq/view?usp=sharing](https://drive.google.com/file/d/1S_25Us91XZYWrahrXFbB8T8Smth9Xleq/view?usp=sharing)
 
