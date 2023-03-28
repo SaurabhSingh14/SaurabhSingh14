@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm Saurabh Singh</h1>
 <h3 align="center">I am an AI and Data Science Enthusiast who is looking to work in learning environment along with utilizing my skills and knowledge to the fullest.</h3>
 
-- 🔭 I’m currently working as **Full time intern at Decodr Technologies (SME)**
+- 🔭 I’m currently working as **Full time AI/ML Developer at RealCoderZ Pvt. Ltd.**
 
 - 🌱 I’m currently exploring **Deep Learning, Data Science field**
 
